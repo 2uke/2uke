@@ -1,9 +1,9 @@
-1uke#9277 is my main discord account
+1uke#0002 is my main discord account
 
 I mainly use this for roblox code (lua) and nothing else.
 
 < links >
 
-discord.gg/lucaas
+https://1uke.carrd.co/
 
-discord.gg/aSp7ZsE5fk
+
